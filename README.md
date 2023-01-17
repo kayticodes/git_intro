@@ -1,1 +1,2 @@
 Catherine Martens
+potgietc@oregonstate.edu
